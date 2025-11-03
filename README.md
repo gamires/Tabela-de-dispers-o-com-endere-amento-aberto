@@ -1,0 +1,1 @@
+# Tabela-de-dispers-o-com-endere-amento-aberto
